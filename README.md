@@ -1,1 +1,1 @@
-# python_-
+# python_-ajou.paran_project
